@@ -1,0 +1,1 @@
+# -majilaajay11-ME_QTRIPDYNAMIC
